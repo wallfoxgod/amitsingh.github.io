@@ -1,2 +1,2 @@
-# shubham12.github.io
+# Amitsingh.github.io
 
